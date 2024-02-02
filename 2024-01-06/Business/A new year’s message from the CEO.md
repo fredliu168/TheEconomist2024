@@ -1,0 +1,24 @@
+###### Bartleby
+# A new year’s message from the CEO 
+##### Up the permavucalution! 
+![image](images/20240106_WBD003.jpg) 
+> Jan 1st 2024 
+Dear friends and colleagues,
+Happy New Year! This time last year, for the ninth year in a row, I warned you that there had never been a more uncertain outlook for our business. My message this year is exactly the same, only more so. The fog of unpredictability is again playing havoc with the clear skies of planning. 
+We all know the term “permacrisis”. We have all heard of the acronym “VUCA”, which stands for volatility, uncertainty, complexity and ambiguity. We all understand that the fourth industrial revolution is upon us. But my belief is that these three great forces have come together in an age of what I am christening “permavucalution”.
+It is my contention that three big permavucalutionary trends are at work. One is artificial intelligence. This technology will turbocharge the pace of change. Don’t just take my word for it. The World Economic Forum thinks so, too. AI is so disruptive that it may end up disrupting disruption itself. If you are struggling to make sense of that sentence, don’t worry: you are not alone.
+I have appointed Denise Laplange to head up our new Project for Rapid AI peRformance Improvement and Enhancement. I know you will make Denise feel very welcome. She and the PRAIRIE team will give us a full update on their plans for our use of AI later in January. For now, though, I urge you to embrace this technology in your own work. I often use ChatGPT to say “no” to conference invitations, for example, or to give generic responses to really unimportant emails. I want you to follow my example. Let’s Experiment. Let’s Explore. Let’s Tinker. Let’s EET. We need to get our arms around AI or we risk reaping a whirlwind of chickens coming home to roost. 
+I know some of you are worried by what AI might mean for your own futures. I say to you: you cannot make an omelette without breaking some eggs. What if you don’t like omelettes, you reply? That’s just ridiculous: who doesn’t like omelettes? Anyway, I want to reassure you: AI is a way to make us all better at what we do. It is not likely to be the precursor to immediate large-scale lay-offs.
+The second permavucalutionary trend is climate change. At COP28, I had a chance to speak to some actual people who are living with the consequences of global warming. That experience was humbling and inspiring: it made me realise we have to do more in this area. As a company we are making every effort to reduce our own carbon footprint, but action is never enough. We also need to be part of the conversation. That’s why I’m so pleased today to announce the launch of our new #whatdoyousee? marketing campaign. 
+When I look in the mirror, I don’t just see a highly successful executive, someone who is driven to make the most of himself every day. I also see a father, an ex-husband, a brother, a Peloton rider, a vintage-car collector and a citizen of Earth. What do you see? Please post your own reflections—pun very much intended—on social media. You can also send me an email (and see how I incorporate ChatGPT into my work). 
+The third manifestation of the permavucalution is a shortage of talent. By talent, I’m not talking about employees in general. I’m talking about the right type of employees—people who are willing to take big bets, who go the extra mile, who see opportunity where others see nothing but extreme danger. I’m talking about some of you.
+I have mentioned how uncertain and volatile everything is. That means we have to sprint to stand still. But that’s not all. To respond to constant changes we also need the agility of a mountain goat. And to spot those changes coming, we require the radar of a bat. Now just ask yourself this question: have you ever seen a sprinting goat-bat? That tells you something about the scale of the challenge that we all face.
+I know that this level of uncertainty can be disorientating, even frightening. But if we do not think outside the box and push the envelope, we will never be able to capture lightning in a bottle.
+Finally, my usual plea: be humble. I have coined a brand new term in this message but I am not doing so for fame or recognition as a deep thinker. I know I don’t have all the answers. If I have a great idea, I don’t just plough ahead with it. I ask my direct reports whether they think it is a great idea first, and only when they agree that it is do I act. Have the humility to follow my example and this company will not just survive the age of permavucalution. It will thrive.
+Here’s to 2024! Stew Pidd, CEO.
+
+
+
+
+
+
