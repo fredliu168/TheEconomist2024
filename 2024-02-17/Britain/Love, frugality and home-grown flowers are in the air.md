@@ -1,0 +1,13 @@
+###### Roses are perishable
+# Love, frugality and home-grown flowers are in the air 
+##### Valentine’s Day in post-pandemic Britain 
+![image](images/20240210_BRP506.jpg) 
+> Feb 9th 2024 
+Love conquers all. But it also makes allowances for changing consumer behaviour. The covid-19 pandemic, the cost-of-living squeeze and even Brexit have changed the way that Britons approach Valentine’s Day, the annual celebration of romance/opportunity to have a blazing row with your partner. 
+Loved-up Britons are more likely to stay in on February 14th than they were a few years ago because of tighter budgets and hybrid lifestyles. On average consumers now spend 66 more minutes at home every day compared with the pre-lockdown era. On Valentine’s Day last year just over 8m people used London’s buses and tube network, around 22% fewer than did so on the same day in 2020. Spending at restaurants fell by 11.6% in January year on year. 
+Those couples who decide to eat in on Valentine’s Day this year have more options than they did before covid. Some restaurants now offer their own DIY meal kits, delivering the ingredients and recipes for chef-crafted meals directly to diners’ homes. A wealth of pandemic-born businesses have ditched bricks and mortar altogether. YHangry, an online platform, allows users to hire private chefs to provide a restaurant-style meal at home. 
+Singletons can be homebodies, too. The period between Christmas and Valentine’s Day is peak season for dating apps: matches between Tinder users globally were 10% higher than normal in the run-up to February 14th last year. But some of these matches opt for virtual dates. Around 6% of those polled in Britain will meet with a romantic prospect online this Valentine’s Day, slightly more than in Europe, a survey by GWI, a research firm, shows. 
+Frugality will affect gift choices. Around 43% of Britons are currently tightening their belts, according to a survey by Barclays, a British bank. Half of those planning to buy flowers on February 14th are intending to skip the florist and pick them up at the supermarket instead. 
+The blooms they buy are changing. Brexit-related border checks that kicked in on January 31st make importing flowers a more arduous process this year, and when demand is so time-sensitive, any delay can be disastrous. Some florists were already turning away from red roses and opting for homegrown flowers such as snowdrops or tulips instead. “Valentine’s Day creates a huge and unnecessary spike in demand for red roses which rapidly unwinds the following day, risking high levels of waste,” says Aron Gelbard, CEO and founder of Bloom and Wild, an online flower-delivery service. “We stopped selling them in 2021.” ■
+
+

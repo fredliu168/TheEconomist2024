@@ -1,0 +1,13 @@
+###### Ukrainians in Sudan
+# Evidence mounts that Ukrainian forces are in Sudan 
+##### But their presence may not alter the outcome of its civil war 
+![image](images/20240217_MAP505.jpg) 
+> Feb 15th 2024 
+Three men kneel on the ground, topless and blindfolded. One of them is light-skinned. His interrogator, who is also white, addresses him in Russian. The group are part of “PMC Wagner”, answers the prisoner, adding that about 100 Wagner mercenaries had entered Sudan from the Central African Republic. 
+On the interrogator’s arm is an owl insignia, the mark of Ukraine’s military intelligence, which is responsible for covert operations. According to the , which published the video on February 5th, this is evidence that Ukrainian forces are fighting in Sudan’s civil war. If so, it suggests Ukraine is widening the fight against Russia well beyond its own borders. It also highlights how Sudan’s war is sucking in outsiders.
+
+Videos purporting to show Ukrainians in Sudan have been circulating for months. Some appear to be of kamikaze drones striking buildings in Khartoum, the capital. Others allegedly show Ukrainian snipers or commandos conducting raids. The accumulating evidence, open-source investigators say, suggests that a small team of Ukrainian special forces is fighting on the side of the national army, the Sudanese Armed Forces (SAF). Some Western diplomats and sources close to the SAF agree. Ukraine and America neither confirm nor deny the allegations.
+Ukraine may have several goals in Sudan. First, it appears to want to disrupt the flow of gold from facilities reportedly operated by Russia’s Wagner mercenary group. Bullion from Sudan, Africa’s third-largest producer, is believed to be one way Russia has mitigated Western financial sanctions. Wagner’s local ally, a rebel paramilitary group known as the Rapid Support Forces (RSF), is the main player in the country’s gold industry. 
+Second, Ukraine may have used Sudan as a transit stop to get weapons from other countries. Sudan itself may have also supplied munitions, though it seems unlikely to have sent much since civil war broke out last April. In September Ukraine’s president, Volodymyr Zelensky, met Abdel Fattah al-Burhan, the head of the SAF, to discuss armed groups funded by Russia.
+Last, targeting Russian forces anywhere in the world sends a message. “It would be the right thing to hunt down the mercenaries in Africa,” says Alexander Khara of the Centre for Defence Strategies, a Kyiv-based think-tank. “To make them pay for the genocidal war in Ukraine.” That may be so. But as the RSF continues its advance across much of Sudan, and the war threatens to spill over its borders, it is unclear whether Ukraine is achieving this. ■
+
