@@ -1,0 +1,12 @@
+###### Go big or go home
+# Cinemas may be dying. But IMAX and the high end are thriving 
+##### IMAX’s success points to a growing niche in a shrinking industry 
+![image](images/20240302_CUP003.jpg) 
+> Feb 28th 2024 
+The box office has a bad case of long covid. Worldwide takings last year were a quarter below their pre-pandemic peak. Americans, who went to the cinema more than five times each in 2000, last year went fewer than three times. As streaming services keep audiences glued to the small screen,  including Cineworld, the world’s second-largest, have entered administration.
+Yet the biggest of the big screens are thriving. IMAX, whose screens are as large as 38 metres (125 feet) wide with denture-rattling sound systems, had worldwide box-office takings of $1.1bn last year and its biggest-ever haul in America and Canada. On February 27th IMAX reported that its annual revenue was up by a quarter, and it expects to install up to 150 new screens in 2024.
+IMAX’s improbable success exemplifies a trend: as cinema-going changes from a regular habit into an occasional treat, the fanciest theatres are prospering. Features such as heated, reclining seats and waiter service pushed the average price of admission in America above $10.50 last year, from around $9 before the pandemic. Cinema chains have tried to tempt audiences out of the house with , moonlit screenings (blankets and cocktails are sold separately) and speed-dating events in the lobby.
+The luxury-cinema trend is not limited to America. IMAX’s share of the international box office (excluding China) rose from 1.7% in 2019 to 2.1% last year. CGV, a South Korean chain with branches across Asia, has rebranded its multiplexes as “cultureplexes”, offering music, gaming and dining alongside films. Auditoriums feature wind, rain and scents, as well as “sweetbox” seats for young couples, who want privacy from parents that living-room couches do not offer. Vox Cinemas, an Emirati chain, has a VIP menu featuring wagyu beef wrapped in gold leaf, for $119.
+Theatre operators must hope audiences are hungry for these add-ons; this year’s movie menu is limited. Strikes last year in Hollywood have delayed titles, including “Mission: Impossible” and “Avatar” sequels, to 2025. Successful cinemas will treat a trip to the movies as the rare luxury it is fast becoming. ■
+
+
