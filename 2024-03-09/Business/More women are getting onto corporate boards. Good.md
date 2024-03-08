@@ -1,0 +1,13 @@
+###### The glass-ceiling index
+# More women are getting onto corporate boards. Good 
+##### Our annual measure of the role and influence of women in the workforce 
+![image](images/20240309_WBP506.jpg) 
+> Mar 7th 2024 
+WOMEN MAKE up half of humankind, and it is reasonable for representative institutions such as corporate boards to reflect this. In 2022 the European Parliament ruled that at least 40% of non-executive directors at firms with more than 250 employees should be women by 2026. Britain’s FTSE 350 companies hit that mark last year, on average. Japan, where only 18% of directors are women, recently told big businesses to get to 30% by 2030. America’s constitutional dislike of quotas dooms similar efforts. But its markets regulator wants firms to disclose diversity statistics, which may shame some into action. 
+![image](images/20240309_EPC713.png) 
+
+Our annual “”, which ranks OECD members on ten indicators of female workplace empowerment (and can be found at economist.com/glassceiling), shows all this is having an effect. Across the club of mostly rich countries, women’s share of directorships reached 33% in 2023, an all-time high (see chart). In France, New Zealand and Norway it is nudging 50%. 
+Is there a business case for more female boards, as well as a moral one? In 2020 consultants at McKinsey found that firms in the top quartile for board gender diversity were 25% likelier to outperform their industry average than those in the bottom quartile. Studies have found that appointment of a woman as boss can boost a firm’s share price and price-to-earnings ratio (though not its return on assets).
+Yet so many factors influence a firm’s profitability that proving a causal link between representation and performance is next to impossible; companies that perform well for other reasons may have the luxury to also pay attention to things like diversity, for example. So instead, Margarethe Wiersema of the University of California, Irvine, and Marie Louise Mors of Copenhagen Business School interviewed directors at 200 big companies in Europe and America. They found that women are consistently better prepared for board meetings, had better attendance rates and were more willing to ask probing questions. Female directors in other words, are “setting a higher standard and mitigating the problem of groupthink”. That should be a boon for corporate governance. ■
+
+
