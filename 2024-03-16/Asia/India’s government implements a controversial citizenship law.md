@@ -1,6 +1,6 @@
 ###### Religious politics
 # India’s government implements a controversial citizenship law 
-##### It may be trying please its base shortly before a general election 
+##### It may be trying to please its base shortly before a general election 
 ![image](images/20240316_ASP003.jpg) 
 > Mar 14th 2024 
 Narendra Modi prides himself on getting things done. Yet when it came to implementing the Citizenship Amendment Act (CAA), a campaign pledge of his Bharatiya Janata Party (BJP), his government dragged its feet. The rules for implementing the law, which offers persecuted religious minorities from some neighbouring countries an accelerated route to Indian citizenship, were published on March 11th, four years after it passed parliament.
