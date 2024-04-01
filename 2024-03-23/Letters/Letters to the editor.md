@@ -3,6 +3,7 @@
 ##### A selection of correspondence 
 ![image](images/20240308_BID001.jpg) 
 > Mar 21st 2024 
+
 Trading arguments
 The case made by Robert Lighthizer, America’s trade representative under Donald Trump, for protective tariffs is full of logical, factual and economic fallacies , March 8th). First, Mr Lighthizer slays a straw man. The economic case against tariff increases is that they worsen the economy’s performance and not, as he claims, that they “destroy capitalism”. The survival of America’s market-oriented economy in the wake of Mr Trump’s tariffs, therefore, does nothing to discredit the case for free trade.
 Second, Mr Lighthizer insists that the past several decades have left America in dire need of “reindustrialisation”. In fact, industrial output in America rose rather steadily from the end of the second world war until the Great Recession of 2008 and 2009, and then slowly rose again until the pandemic, after which it once again increased. It hit its all-time high in September 2018 and is today only 1.5% below that record level. As for America’s industrial capacity, today it is a mere 0.4% below the historic peak it reached in December 2016, the month before Mr Trump took office.

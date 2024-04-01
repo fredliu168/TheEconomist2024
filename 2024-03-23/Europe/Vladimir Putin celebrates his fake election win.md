@@ -1,7 +1,7 @@
 ###### After the show
 # Vladimir Putin celebrates his fake election win 
 ##### He claims he secured 87% of the vote 
-![image](images/20240323_EUP003.jpg) 
+![image](images/20240330_EUP505.jpg) 
 > Mar 17th 2024 
 Vladimir Putin looked smirkingly triumphant as he strode onto a Red Square that had been filled with thousands of flag-waving extras, herded in to demonstrate unity and support. This spectacle, on March 18th, a day after the election that gave him yet another , was designed to give legitimacy to a dictator whose power rests on violence, lies and corruption; and it cleverly doubled up with the celebration of the annexation of Crimea exactly ten years earlier. “Glory to Russia,” he shouted, clutching a microphone and cueing up the Stalin-era Soviet national anthem, which he brought back to Russia in 2000 after he first became the country’s president. 
 But neither the election, which was spread over three days with no proper scrutiny and no true opposition candidates, nor Mr Putin’s victory with a whopping 87% of the vote, are real. Not only had the exercise excluded the very possibility of choice, but up to 30m votes, which would be nearly half of the total, appear to have been fabricated, according to a statistical analysis of electoral anomalies by Sergei Shpilkin, a reputable Russian data analyst.
