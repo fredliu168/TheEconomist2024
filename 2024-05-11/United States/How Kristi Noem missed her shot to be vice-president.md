@@ -1,0 +1,8 @@
+###### Barking mad
+# How Kristi Noem missed her shot to be vice-president 
+##### A failure to do things by the book 
+![image](images/20240511_USP508.jpg) 
+> May 9th 2024 
+The campaign memoir is an American tradition with a few signature ingredients. These include a flattering headshot, a title superficially stirring but actually meaningless (see Kamala Harris’s “The Truths We Hold” or Ron DeSantis’s “The Courage to Be Free”) and above all a text that is gently self-congratulatory and so insipid as to be entirely unmemorable. Kristi Noem, the telegenic Republican governor of South Dakota plainly angling to be Donald Trump’s running-mate, has released her own contribution to this grand literary tradition. It succeeds on only two of these three counts: the photo looks expensively posed (with a gilt clock and feminist placard in the foreground and an American flag in background), and the title (“No Going Back”) is suitably vapid. But the contents are unfortunately memorable in the worst possible ways.
+Most surreal and disturbing is the story Ms Noem recounts, with some joy, of shooting one of her dogs. Cricket, the ill-fated animal, was a 14-month-old wirehair pointer who ruined a pheasant hunt that Ms Noem had planned for her lodge guests. The rumbustious Cricket then finished her day by attacking some chickens (“she was a trained assassin”) and attempting to bite the hand that fed her (Ms Noem’s). “I hated that dog,” the governor writes. She then decides to put her down by shooting her dead in a gravel pit. 
+

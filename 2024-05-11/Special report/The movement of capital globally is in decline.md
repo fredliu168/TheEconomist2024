@@ -1,0 +1,8 @@
+###### Cross-border investment
+# The movement of capital globally is in decline 
+##### Geopolitics is altering its trajectory 
+![image](images/20240511_SRD003.jpg) 
+> May 3rd 2024 
+Listen to American officials describe the trade and investment barriers they are erecting against China, and you might think they are doing their utmost to limit the economic knock-on effects. “These steps are not about protectionism, and they’re not about holding anyone back,” Jake Sullivan, the national security adviser, recently told the Council on Foreign Relations, a think-tank in New York. Officials talk of a “small yard and high fence” when describing restrictions on doing business with China—that is, measures that are narrowly targeted to protect national security, if tough to circumvent. When Gina Raimondo, the commerce secretary, warns of some Chinese firms becoming “uninvestable” for American counterparts, she strikes an almost mournful tone, urging China to allow such partnerships to flourish again.
+But the talk of limiting disruption is a fantasy. The prioritisation of national security above unfettered investment is reshaping the movement of capital across borders. Global capital flows—especially foreign direct investment (FDI)—have plunged, and are now directed along geopolitical lines. This has benefits for non-aligned countries that can play both sides, and, if it limits the volatility of capital flows, may do some good for the financial stability of emerging markets. But as geopolitical blocs pull further apart, it is likely to make the world poorer than it otherwise would be.
+

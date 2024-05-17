@@ -1,0 +1,8 @@
+###### The politics of students
+# Advisers to British government: don’t mess with graduate visas 
+##### A dilemma for ministers and a relief for universities 
+![image](images/20240518_BRP502.jpg) 
+> May 14th 2024 
+BRITAIN’S GOVERNMENT slaloms between celebrating the international students who prop up its universities and trying to stop their supply. In March it ordered a panel of experts to review a policy that is crucial in attracting foreign bookworms: a visa scheme called the , which permits most foreign students to live and work in Britain for two years after they finish their studies. The Conservative Party, eager to look tough on immigration, seemed to hope that its Migration Advisory Committee (MAC), an independent body, would recommend junking the programme. Instead the MAC’s report, published on May 14th, gives it full-throated support.
+The “graduate route” was unveiled in 2019 as a way to keep Britain competitive with other places that vie for foreign students. America, Australia and Canada have long offered similar programmes. The promise of post-study visas sweetens the deal not only for students who aspire to settle abroad permanently but also for those who think a spot of foreign work experience will help them stand out when they go home. They are especially valued by students from poorer countries, who count on a few years’ rich-world wages to help pay down the loans they must take out to cover rich-world tuition fees.
+

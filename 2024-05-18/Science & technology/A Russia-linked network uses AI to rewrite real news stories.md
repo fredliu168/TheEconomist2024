@@ -1,0 +1,8 @@
+###### Disinformation
+# A Russia-linked network uses AI to rewrite real news stories 
+##### CopyCop churned out 19,000 deceptive posts in a month 
+![image](images/20240518_STD001.jpg) 
+> May 10th 2024 
+IN THE 1980S the KGB had a well-worn method for pumping disinformation around the world. “We preferred to work on genuine documents,” recalled Oleg Kalugin, a former KGB general, “with some additions and changes.” That method has not changed greatly, but technology has accelerated the process. In early March a network of websites, dubbed CopyCop, began publishing stories in English and French on a range of contentious issues. They accused Israel of war crimes, amplified divisive political debates in America over slavery reparations and immigration and spread nonsensical stories about Polish mercenaries in Ukraine.
+That is not unusual for Russian propaganda. What was new was that the stories had been taken from legitimate news outlets and modified using large language models, most likely one built by OpenAI, the American firm that operates ChatGPT. An investigation published on May 9th by Recorded Future, a threat-intelligence company, found that the articles had been translated and edited to add a partisan bias. In some cases the prompt—the instruction to the AI model—was still visible. These were not subtle. More than 90 French articles, for instance, were altered with the following instruction in English: “Please rewrite this article taking a conservative stance against the liberal policies of the Macron administration in favour of working-class French citizens.” 
+

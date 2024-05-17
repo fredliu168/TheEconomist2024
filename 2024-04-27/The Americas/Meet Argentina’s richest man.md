@@ -1,0 +1,8 @@
+###### Latin America’s tech superstar
+# Meet Argentina’s richest man 
+##### The boss of Mercado Libre ponders Javier Milei, self-doubt and the dangers of wokery 
+![image](images/20240427_AMP002.jpg) 
+> Apr 25th 2024 
+Even billionaires ponder the path not taken. At 17, Marcos Galperin had returned from a tour playing competitive rugby in Australia and New Zealand, two egg-chasing powerhouses, when he was offered a place at the University of Pennsylvania to study business. “I had to make a choice,” recalls the 52-year-old founder of Mercado Libre, Latin America’s dominant e-commerce and payments firm, from his office in Montevideo, Uruguay’s capital. But old dreams die hard. “If I were to be born again I would definitely go for a sports career,” says Mr Galperin. Still, being a billionaire has its compensations. Last year he bought the Miami Sharks, a rugby team in the United States. 
+Argentina’s rugby team could have used a handy fly-half in the 1990s, but both Mr Galperin’s home country and Latin America are much better off for his choice of business. It is hard to overstate Mercado Libre’s impact. In a region of 670m people, the firm counted 218m active users last year. They buy and sell goods online, and use Mercado Pago, the firm’s payments arm, to pay for everything from roadside snacks to football tickets. Mr Galperin is the mega-star of Latin America’s technology scene. With a net worth of over $6bn he is one of the region’s wealthiest men. Already powerful in business, he is increasingly outspoken on social media. 
+

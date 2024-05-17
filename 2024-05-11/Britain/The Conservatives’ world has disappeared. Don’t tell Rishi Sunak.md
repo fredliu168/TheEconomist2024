@@ -1,0 +1,8 @@
+###### Bagehot
+# The Conservatives’ world has disappeared. Don’t tell Rishi Sunak 
+##### Goodbye, 2019! 
+![image](images/20240511_BRD000.jpg) 
+> May 8th 2024 
+In “Good bye, Lenin!”, a cult German film, a devoutly communist mother suffers a heart attack in the autumn of 1989 and ends up in a coma. By the time she wakes up the Berlin Wall has fallen, Germany is on the path to reunification and communism has crumbled. A poignant farce ensues, in which her son Alexander shields his ailing mother from capitalist reality, recording fake-news bulletins showing Berliners rushing east, not west. In her bedroom the Deutsche Demokratische Republik (ddr) carries on; outside it, free Germans buy Billy bookcases from Ikea, drive Volkswagens and drink Coca-Cola. 
+Such near-heroic denial of circumstances is now in vogue in British politics. On May 3rd Rishi Sunak took a victory lap in Teesside, which was the Conservative Party’s only victory out of 11 mayoral races in . “I’ve got a message for the Labour Party,” said the Tory prime minister, currently trailing Labour by 20 points in national polls. “They know that they have to win here in order to win a general election.” In fact the Conservatives suffered a swing against them which would guarantee they lose every seat in a region that is a vital chunk of the “red wall”—a band of traditionally Labour constituencies that the party is so proud of winning in the 2019 general election. 
+

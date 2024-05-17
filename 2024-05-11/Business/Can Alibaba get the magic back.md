@@ -1,0 +1,8 @@
+###### Schumpeter
+# Can Alibaba get the magic back? 
+##### China’s e-commerce giant is no longer being stripped for parts. Good 
+![image](images/20240511_WBD000.jpg) 
+> May 9th 2024 
+ALIBABA USED to be synonymous with the success of Chinese e-commerce. Lately the company has been synonymous with its woes. In 2021 it became the grimacing face of an official crackdown against China’s biggest technology firms, whose growing size and seeming social indispensability must have spooked the Communist Party. It was fined a record $2.8bn for monopolistic practices that, the government said, were hurting customers and merchants. Its co-founder, Jack Ma, disappeared into self-imposed exile. Rivals such as PDD, which began life as a group-buying platform, and ByteDance, which owns TikTok and its Chinese sister app, Douyin, proved better at catering to thrifty consumers and at adapting to new trends such as “social commerce”, which mixes shopping and showbusiness. 
+In late 2022 Alibaba’s market value, which two years earlier had exceeded $800bn, fell below $170bn, close to a record low since its blockbuster initial public offering (IPO) in 2014. To reverse the decline, in March last year the company decided to split itself in six. Five firms were spun out: a logistics business (Cainiao), a cloud-computing one (Aliyun), an international e-commerce operation (which contained Alibaba’s main global platform, AliExpress, and a few regional subsidiaries), a digital-services company (which controls Ele.me, a food-delivery app) and a small media group. Alibaba proper retained the domestic retail operation, which is centred around Taobao and Tmall, its two giant marketplaces, and which accounts for nearly 70% of the group’s revenues.
+

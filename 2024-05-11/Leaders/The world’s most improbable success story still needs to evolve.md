@@ -1,0 +1,8 @@
+###### New management in Singapore
+# The world’s most improbable success story still needs to evolve 
+##### Under Lawrence Wong, the city-state has a new chance to change 
+![image](images/20240511_LDP001.jpg) 
+> May 9th 2024 
+SINGAPORE is WIDELY admired. Western politicians envy its sky-high living standards and its efficient civil service. In the emerging world it is a lesson in how to escape poverty. Yet the island state of 6m now finds itself confronting three of the world’s greatest challenges: tension between the West and China, ageing and climate change. True, Singapore is so small that its policies cannot always be easily copied elsewhere. But how it handles its problems will still be worth watching. Part of the answer needs to be more open politics.
+Singapore’s destiny is in the hands of a new leader, Lawrence Wong, whom . On May 15th he becomes prime minister, as Lee Hsien Loong steps down. That will end what was, in effect, 59 years of rule by the Lee family (Goh Chok Tong ran things for 14 years, but even then a Lee was waiting in the wings, while another stayed on as “senior minister”). Mr Lee’s father, Lee Kuan Yew, turned a colonial entrepot with seething racial politics into a gleaming metropolis. His formula included openness to trade, geopolitical neutrality and a technocratic government; less attractively, he sought to destroy opponents and muzzled free speech. Singapore’s GDP per person is an astonishing $88,000.
+

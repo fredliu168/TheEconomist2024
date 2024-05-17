@@ -1,0 +1,8 @@
+###### Lexington
+# Why the Republicans will convene in a forge of American socialism 
+##### Donald Trump has made gains with Wisconsin’s working class, but Joe Biden could still win there 
+![image](images/20240511_USD000.jpg) 
+> May 9th 2024 
+Considering the recent pattern of American politics, the Republicans’ choice to hold their convention this July in Milwaukee, Wisconsin, is no surprise. Barack Obama easily won the state twice, but in the other four presidential contests this century Wisconsin was decided by less than 1% of the vote. Hillary Clinton, who did not even campaign there in 2016 against Donald Trump, lost the state by 23,000 votes. In 2020 Joe Biden did not repeat her mistake. The Democrats planned their convention for Milwaukee, before covid-19 intervened, and in the end he carried the state, though by just 21,000 votes out of more than 3.2m. Wisconsin is among the handful of swing states this year.
+But look a little deeper into the political past and the choice of Milwaukee, a manufacturing hub on the western shore of Lake Michigan, says something more profound about the evolving contest between Democrats and Republicans. For a century Wisconsin’s dairy farmers and factory workers were at the leading edge of America’s labour movement and its progressive politics. Wisconsin created the country’s first progressive state income tax, its first unemployment-insurance scheme and its first workers’-compensation programme. Wisconsinites helped shape Franklin Roosevelt’s New Deal and Lyndon Johnson’s Great Society.
+

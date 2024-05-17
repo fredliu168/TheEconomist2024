@@ -1,0 +1,8 @@
+###### Transactions
+# National payment systems are proliferating 
+##### That spurs competition, innovation—and cross-border frictions 
+![image](images/20240511_SRD004.jpg) 
+> May 3rd 2024 
+In February 2022 protesters of Russian warmongering daubed their faces with paint, draped themselves in Ukrainian flags, and clutched signs bearing passionate messages about, of all things, the Society for Worldwide Interbank Financial Telecommunication (SWIFT). It made sense. As Russia attacked Ukraine, the West searched for ways to punish Vladimir Putin. Removing Russian banks from the primary network used to make large cross-border payments was an easy call. It would sever a crucial artery connecting the world to Russia’s financial system, adding to a battery of sanctions that would crush its economy.
+But Mr Putin was ready. After Russia’s invasion of Crimea and eastern Ukraine in 2014, it faced the same threat of excision from SWIFT. “There are risks in using the global financial networks,” Elvira Nabiullina, the governor of the Central Bank of Russia, told CNBC in 2018. “Therefore, since back in 2014, we have been developing our own systems.” Those are SPFS, a financial messaging service to take the place of SWIFT for interbank transfers, and Mir, a card-payment network to replace Western providers such as Visa. Being cut off from parts of the global payments system in 2022 will have inconvenienced many of Russia’s corporate treasurers, and certainly has made cross-border transactions much harder. But it did not strike a fatal blow.
+

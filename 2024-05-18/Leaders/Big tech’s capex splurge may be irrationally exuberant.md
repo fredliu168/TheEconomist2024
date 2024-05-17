@@ -1,0 +1,8 @@
+###### A trillion-dollar AI arms race
+# Big tech’s capex splurge may be irrationally exuberant 
+##### Beware of overhype and overbuild 
+![image](images/20240518_LDD002.jpg) 
+> May 16th 2024 
+From the 19th-century railway mania to the telecoms boom at the dawn of the internet age, cautionary tales abound of over-investment in infrastructure fuelled by excitement over a new technology. With the rise of generative artificial intelligence (AI), history is repeating itself. In recent weeks four tech giants—Alphabet, Amazon, Meta and Microsoft—have pledged to spend close to a total of $200bn this year, mostly on data centres, chips and other gear for building, training and deploying generative-AI models. That is 45% more than last year’s blowout. Tech barons such as Meta’s Mark Zuckerberg admit that it may be years before this investment generates returns. It is an AI arms race.
+The tech firms are not only buying infrastructure. In the past few years they have joined a stampede to put venture capital (VC) into OpenAI, Anthropic and other makers of foundational models. Traditional VC firms bellyache that they have not seen such corporate big-footing since the dotcom boom. The tech giants are flush with cash—they can afford to splash out. But, if the past is any guide, a bust is coming and the firms carry such weight in the stockmarket that, should their overexcitement lead to overcapacity, the consequences would be huge. 
+

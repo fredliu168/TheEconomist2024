@@ -1,0 +1,8 @@
+###### Generative AI
+# Today’s AI models are impressive. Teams of them will be formidable 
+##### Working together will make LLMs more capable and intelligent—for good and ill 
+![image](images/20240518_STD002.jpg) 
+> May 13th 2024 
+On May 13th OpenAI unveiled its latest model, GPT-4o. Mira Murati, the company’s chief technology officer, called it the “future of interaction between ourselves and the machines”, because users will be able to speak to the model, which will talk back in an expressive, humanlike way. A day later, Demis Hassabis, the leader of Google’s artificial-intelligence (AI) efforts, demonstrated Project Astra, an early version of what he says is the company’s attempt to “develop universal AI agents that can be helpful in everyday life”. 
+The launches are part of moves across the tech industry to make chatbots and other AI products more useful and engaging. Show GPT-4o or Astra pictures or videos of art or food that you enjoy and they could probably furnish you with a list of museums, galleries and restaurants you might like. But, as impressive as these AI agents seem, they still have some way to go before they will be able to carry out complex tasks. Ask them to plan a trip to Berlin for you, for example, based on your leisure preferences and budget—including which attractions to see, in which order, and what train tickets to buy to get between them—and they will disappoint.
+

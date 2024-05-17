@@ -1,0 +1,8 @@
+###### Realignment
+# How crises reshaped the world financial system 
+##### A brief history of fragmentation 
+![image](images/20240511_SRD002.jpg) 
+> May 3rd 2024 
+Writing wistfully in 1919, John Maynard Keynes reflected on how the first world war had brought the first great age of financial globalisation to a crashing end. A few years earlier a Londoner sipping tea in bed could, with just a phone call, “adventure his wealth in the natural resources and new enterprises of any quarter of the world”. If government bonds were more to his fancy than commodities or startups, he could “couple the security of his fortunes with the good faith of the townspeople of any substantial municipality in any continent that fancy or information might recommend”. This ability to share “without exertion or even trouble” in the world’s wealth creation was part of “this economic Eldorado…this economic Utopia” in which Keynes had come of age—and which had been shattered by the war that broke out in 1914.
+More than a century on, financial globalisation’s second age has given the day trader tapping at her phone a menu of options that would put Keynes’s imaginary gentleman to shame. Though war has returned to Europe, few financial channels have truly been closed. There has been no repeat of the wholesale shuttering of stock and bond markets that took place amid the first world war. The Londoner of 2024 can pick any of dozens of stockmarkets around the world in which to place his money without exertion. 
+

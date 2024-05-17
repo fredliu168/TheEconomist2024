@@ -1,0 +1,8 @@
+###### Polls and profits
+# How to handle populists: a CEO’s survival guide 
+##### Western businesses are learning to live with volatile electoral politics around the world 
+![image](images/20240504_WBD001.jpg) 
+> Apr 28th 2024 
+THIS YEAR Western bosses must work their way through a lengthy list of obsequious phone calls. Around 80 countries, home to some 4bn people, are holding . Some chief executives may already have drafted their compliments for , who is near-certain to keep his job as prime minister of India, where citizens are now casting ballots in a weeks-long poll. After Mexico’s election in June corporate leaders expect to be congratulating , the anointed successor of the incumbent, Andrés Manuel López Obrador.
+Western firms working to  have turned to India and Mexico. But neither electoral prospect fills them with unadulterated delight. Mr Modi has made his country an easier place to do business, by simplifying its tax system and investing in infrastructure, among other things. But he has also raised tariffs on goods like cars and increased domestic firms’ tax advantage over foreign ones. Mr López Obrador has been nationalising the assets of Western firms in industries from construction materials to energy and let criminal gangs run rampant. Indonesia, another market that has caught the eye of Western bosses, elected a populist of its own, Prabowo Subianto, in February.
+
