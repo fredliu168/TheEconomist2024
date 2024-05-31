@@ -1,0 +1,8 @@
+###### Artificial intelligence
+# AI firms mustn’t govern themselves, say ex-members of OpenAI’s board 
+##### For humanity’s sake, regulation is needed to tame market forces, argue Helen Toner and Tasha McCauley 
+![image](images/20240524_BID001.jpg) 
+> May 26th 2024 
+CAN PRIVATE companies pushing forward the frontier of a revolutionary new technology be expected to operate in the interests of both their shareholders and the wider world? When we were recruited to the board of OpenAI—Tasha in 2018 and Helen in 2021—we were cautiously optimistic that the company’s innovative approach to self-governance could offer a blueprint for responsible AI development. But based on our experience, we believe that self-governance cannot reliably withstand the pressure of profit incentives. With AI’s enormous potential for both positive and negative impact, it’s not sufficient to assume that such incentives will always be aligned with the public good. For the rise of AI to benefit everyone, governments must begin building effective regulatory frameworks now. 
+If any company could have successfully governed itself while safely and ethically developing advanced AI systems, it would have been . The organisation was originally established as a non-profit with a laudable mission: to ensure that AGI, or artificial general intelligence—AI systems that are generally smarter than humans—would benefit “all of humanity”. Later, a for-profit subsidiary was created to raise the necessary capital, but the non-profit stayed in charge. The stated purpose of this  was to protect the company’s ability to stick to its original mission, and the board’s mandate was to uphold that mission. It was unprecedented, but it seemed worth trying. Unfortunately it didn’t work.
+
