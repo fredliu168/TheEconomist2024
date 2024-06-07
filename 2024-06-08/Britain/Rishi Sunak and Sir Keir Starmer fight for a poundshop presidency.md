@@ -1,0 +1,8 @@
+###### Bagehot
+# Rishi Sunak and Sir Keir Starmer fight for a poundshop presidency 
+##### The general election reveals the absurdities of Britain’s presidential turn 
+![image](images/20240608_BRD000.jpg) 
+> Jun 5th 2024 
+Neither Rishi Sunak nor Sir Keir Starmer is a natural politician. That may be a strange thing to say about a man who was the youngest prime minister since 1812 and an opponent who is on track for a historically large majority. But in a less feral era of British politics, Sir Keir would have capped off a successful legal career with a few years as attorney-general and Mr Sunak would still be a mid-ranking cabinet minister rather than the boss. Extreme events put both in a high place, like a fishing boat marooned halfway up a hill after a tsunami.
+All their flaws and frailties were on display during their first televised head-to-head debate on June 4th. Neither shone. Mr Sunak has two registers: simpering and hectoring. When members of the public laid out their hardship stories,  responded with the learned empathy of a man worth £651m ($830m). When the debate moved to technical matters, he responded with the pernickety fluency of an over-promoted junior minister. , meanwhile, is remarkably wooden for a former barrister, clumsily dragging every other question back to his tenure running the Crown Prosecution Service. The viewer was left pleasantly surprised that anyone was jailed during his stint there. 
+
