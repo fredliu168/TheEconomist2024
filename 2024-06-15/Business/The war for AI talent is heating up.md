@@ -1,0 +1,8 @@
+###### Retention is all you need
+# The war for AI talent is heating up 
+##### Big tech firms scramble to fill gaps as brain drain sets in 
+![image](images/20240615_WBD001.jpg) 
+> Jun 8th 2024 
+Pity OpenAI’s HR department. Since the start of the year the maker of ChatGPT, the hit artificial-intelligence (AI) chatbot, has lost about a dozen top researchers. The biggest name was Ilya Sutskever, a co-founder responsible for many of the startup’s big breakthroughs, who announced his resignation on May 14th. He did not give a reason, though many suspect that it is linked to his attempt to oust Sam Altman, the firm’s boss, last December. Whatever the motivation, the exodus is not unusual at OpenAI. According to one estimate, of the 100-odd AI experts the firm has hired since 2016, about half have left.
+That reflects not Mr Altman’s leadership but a broader trend in the technology industry, one that OpenAI itself precipitated. Since the launch of ChatGPT in November 2022, the market for AI labour has been transformed. Zeki Research, a market-intelligence firm, reckons that around 20,000 companies in the West are hiring AI experts. Rapid advances in machine learning and the potential for a “platform shift”—tech-speak for the creation of an all-new layer of technology—has changed the types of skills employers are demanding and the places where those who possess them are going. The result is a market where AI talent, previously hoarded at tech giants, is becoming more distributed.
+

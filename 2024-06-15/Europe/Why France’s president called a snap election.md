@@ -1,0 +1,8 @@
+###### Macron’s mega-gamble
+# Why France’s president called a snap election 
+##### The centre wants to weaken Marine Le Pen’s hard right, in or out of power 
+![image](images/20240615_EUP001.jpg) 
+> Jun 10th 2024 
+Emmanuel Macron is nothing if not a risk-taker. At the age of 38, an electoral debutant, he launched a new centrist party and went on to win the French presidency in 2017, barely a year later. Now Mr Macron has taken a fresh political gamble that puts his credibility and authority on the line for the three years that remain of his second term in office. His unexpected decision, announced on June 9th, to dissolve the National Assembly and hold snap elections in a two-round poll on June 30th and July 7th, has stunned even his own deputies, and left all parties scrambling to book venues, pick candidates and plan their campaigns.
+Mr Macron’s decision was a response to crushing results for his party, Renaissance, at  on June 9th. The party took just half the vote secured by Marine Le Pen’s hard-right party, National Rally (RN). Her triumphant 28-year-old candidate, , scored over 31%, a party record at European elections. That evening, in a televised address, Mr Macron called his decision “grave, heavy”, but argued that he could not “carry on as if nothing had happened”. The fresh vote, the president declared, was consistent with the democratic principle that “the word should be given to the sovereign people”.
+
