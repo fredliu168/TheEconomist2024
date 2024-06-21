@@ -1,0 +1,8 @@
+###### School of stocks
+# America is educating a nation of investors 
+##### Encouraged by research, more states are requiring schools to teach personal finance 
+![image](images/20240622_USD001.jpg) 
+> Jun 20th 2024 
+“HOW IS THE stockmarket looking today?” asks Jennifer Varga, a teacher at Memorial Middle School in Willingboro, New Jersey, a suburb about 20 miles outside Philadelphia. She has projected a live visualisation of S&amp;P 500 companies sorted by market cap onto the board at the front of her classroom. It is a sea of mostly red boxes. A 14-year-old pupil quickly answers: “Trash!” She is not wrong—it was a rubbish morning for the index on June 11th. Ms Varga adjusts the picture to show the S&amp;P’s rise over the past month, then the past six months. The pupils nod approvingly at the sea of green boxes as Ms Varga explains the virtues of investing long-term.
+Personal-finance courses that teach pupils best practices for managing their money are spreading across America, propelled by recent state laws requiring such instruction. Since 2020, 17 states have adopted mandates that make taking a financial-literacy course a requirement for high-school graduation, bringing the total up to 25. According to Tim Ranzetta, the co-founder of Next Gen Personal Finance, an advocacy group, 53% of pupils are in a state that currently requires or has decided to soon require such a course to graduate. That figure will probably grow. New York State is considering a mandate, and California has a bill in the works (potentially driving up the percentage to about 70% of all American pupils).
+

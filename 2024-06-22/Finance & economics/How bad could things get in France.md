@@ -1,0 +1,8 @@
+###### Bardella’s potential burden
+# How bad could things get in France? 
+##### The country’s next prime minister faces a brutal fiscal crunch 
+![image](images/20240622_FNP501.jpg) 
+> Jun 18th 2024 
+It was a French politician, Valéry Giscard d’Estaing, who coined the term “exorbitant privilege” in the 1960s. He was referring to benefits received by America as issuer of the world’s reserve currency—namely, the ability to run high deficits comfortably. These days  is reminded it has no such privilege. Ahead of parliamentary elections on June 30th and July 7th, its hefty deficit and growing debt are central to the campaign. On June 19th the European Commission said it was preparing to put France into an excessive-deficit procedure, the eu’s fiscal torture chamber, meaning the country’s politicians will have to come up with a plan to fix things.
+The commission’s officials have reason to do so. France has an American-style deficit of 5% of GDP, which its central bank  expects to come down only slowly. The country’s debt-to-GDP ratio of 111% is similar to Italy’s before the euro crisis in the early 2010s, and is set to rise. S&amp;P Global, a ratings agency, downgraded France’s sovereign-debt rating from AA to AA- on May 31st, before Emmanuel Macron, France’s president, gambled on  that may bring the hard-right National Rally (RN) or the left-wing New Popular Front to power, under his continuing presidency. 
+
