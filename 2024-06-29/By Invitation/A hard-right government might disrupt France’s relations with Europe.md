@@ -1,0 +1,8 @@
+###### The French election
+# A hard-right government might disrupt France’s relations with Europe 
+##### Or it could try to change the EU from within—which would be worse, reckons Jean Pisani-Ferry 
+![image](images/20240625_BID001.jpg) 
+> Jun 26th 2024 
+IN 2017 EMMANUEL MACRON crushed Marine Le Pen in the second round of the French presidential election, taking 66% of the votes. In 2022 he defeated her more narrowly, but still comfortably, with 59%. Yet following the dissolution of the National Assembly, France’s parliament, his centrist party and its allies are now estimated to have the support of just 21% of the electorate, against 29% for the left-wing alliance known as the New Popular Front (NPF) and 37% for Ms Le Pen’s hard-right National Rally (RN). 
+In his acceptance speech after being re-elected in 2022, Mr Macron said he had understood the message of French voters. But having failed to build alliances ahead of the general elections that followed, he did not secure a majority in parliament. Afterwards, he struggled to push through divisive reforms of the pension system and the immigration regime, alienating centre-left voters without satisfying those on the right. Though he successfully used deficit-financed subsidies to limit the inflationary consequences of the energy-price shock, people resented the stagnation of purchasing power and the erosion of their savings. Anger about this—and also about Mr Macron’s Jupiterian style of government—translated into a dismal performance for his list in the European Parliament elections earlier this month, which in turn prompted the president’s decision to call snap elections.
+

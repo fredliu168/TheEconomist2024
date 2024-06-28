@@ -1,0 +1,8 @@
+###### France’s parliamentary election
+# Emmanuel Macron’s centrists are facing a disastrous first-round vote 
+##### Marine Le Pen’s party will be the main beneficiary 
+![image](images/20240629_EUD001.jpg) 
+> Jun 27th 2024 
+Cradling his  of beer with a tattooed arm, Jocelyn needs few words to sum up the upcoming French election: “It’s all about Macron”. In the small town of Châteaudun, in rural west-central France, he is sitting at a pavement café on the main square, shaded by plane trees, just days before the first round of French parliamentary elections on June 30th. An industrial-machine operator, Jocelyn has no doubt as to the way fellow voters will show their displeasure at the French president, Emmanuel Macron: by backing Marine Le Pen’s hard-right National Rally (RN). The RN, he says, “used to have an image as a racist and fascist party, but not any more.”
+Home to some 13,000 inhabitants, Châteaudun is as close as France gets to a town that reflects the country. Its outskirts are approached via a drive-in McDonald’s and a “Buffalo Grill” steakhouse; its town centre is a handsome mix of medieval and renaissance architecture. On the main square, with its ornate centrepiece fountain, a Turkish kebab shop nestles between a hairdresser’s and a pharmacy. At the past four presidential elections the town has voted in line with the nation, too. In 2022 58% of the townsfolk backed Mr Macron against Ms Le Pen, almost exactly the score the centrist secured countrywide. Then, at voting for the European Parliament on June 9th, the town swung the other way: 33% supported the RN, just a touch above the national average. 
+

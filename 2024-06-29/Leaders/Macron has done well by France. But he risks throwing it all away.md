@@ -1,0 +1,8 @@
+###### The centre cannot hold
+# Macron has done well by France. But he risks throwing it all away 
+##### After the election, populists of the right and left could hobble a centrist president 
+![image](images/20240629_LDD002_FH.jpg) 
+> Jun 27th 2024 
+BUT FOR snap elections on June 30th, this should have been a time for Paris to celebrate. Seldom has the City of Light sparkled so brightly. In a month, France’s capital will welcome the world to the 33rd Olympiad. Brand-new train lines will ferry athletes to gleaming new venues, carving through a place that has rediscovered its vibrancy. Once in danger of becoming a backwater with some good museums but dated cuisine and a lot of graffiti, Paris is now a hub for tech companies and a banking centre that is starting to rival London as it draws talent and capital across the channel. Fusion food, bike lanes, international lycées, startup spaces, pop-up fashion: Paris is cool again. And not just Paris. Urban renewal, driven by a good mix of public investment and private enterprise, is sprouting in Lyon, Dijon, even once-grimy Lille.
+Much of the credit belongs to Emmanuel Macron. His seven years as president have seen  to remake France as a modern, business-friendly economy. He has reformed employment to encourage bosses to take on workers. Since he moved into the Elysée in 2017, 2m jobs have been created and over 6m businesses set up. He has cut business taxes, along with stifling wealth taxes. He has boosted education and started to reform the unaffordable pension system. France’s growth is above the euro-zone average, and poverty rates below it.
+
