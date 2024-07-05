@@ -1,0 +1,8 @@
+###### France’s parliamentary election
+# Le Pen’s hard right looks set to dominate the French parliament 
+##### Even without a majority 
+![image](images/20240706_EUP001.jpg) 
+> Jul 3rd 2024 
+The French are heading to the polls, and into the dark. For the first time in the country’s post-war history, a final  on July 7th could still enable the hard right to enter government. But after tactical party arrangements following first-round voting on June 30th, its chances of securing a majority by itself have receded. Voters may instead give no political bloc control. Far from settling , Emmanuel Macron’s surprise decision to call a snap election looks likely to usher in a period of deadlock, apprehension and instability. 
+One of the few certainties about this  is that it is shaping up to be a disaster for Mr Macron’s centrist project. When he was first elected president in 2017 at the age of 39, on a wave of pro-European optimism, youthful energy and political renewal, Mr Macron vowed to “do everything” to ensure there was “no longer any reason to vote for the extremes”. Now, Marine Le Pen’s National Rally (RN) and friends are on course to become the biggest parliamentary bloc. After coming top in 297 out of 577 constituencies in first-round voting, the RN could triple its seats from 88. It may even come close to securing the 289 needed for a majority. Today, Mr Macron represents incumbency; youth is embodied by Jordan Bardella, Ms Le Pen’s 28-year-old candidate for prime minister.
+

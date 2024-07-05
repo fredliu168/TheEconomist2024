@@ -1,0 +1,8 @@
+###### A different kind of therapy
+# Mexico has become a testing ground for psychedelic therapies 
+##### From ibogaine to LSD, the benefits of psychedelics are not yet backed up by strong medical evidence 
+![image](images/20240706_AMP002.jpg) 
+> Jul 4th 2024 
+Olivia has suffered with depression and struggled to form romantic attachments ever since she was sexually assaulted. Counselling and medication scarcely helped. So in September 2023 she flew to Mexico and joined a retreat that uses 5-MeO-DMT, a psychedelic compound, as a therapeutic agent. She was “terrified”, but says the drug was “an opening” and that it let her body “feel what it needed to feel to start processing” her assault. She plans to return to Mexico for more psychedelic therapy this year.
+Indigenous people across Latin America have long used naturally occurring psychedelics. As a result, they tend to be legal and easy to obtain in the region, not banned as they are in the United States. After magazine published an article in 1957 by Gordon Wasson, an amateur botanist, about his experience taking magic mushrooms in Mexico, hippies and rockstars flocked there. Now growing numbers of people like Olivia (not her real name) are coming to use psychedelics therapeutically rather than recreationally. Lysergic acid diethylamide (LSD) is the best known, but the category includes 5-MeO-DMT (which can be synthesised but is also found in a toad and plants), psilocybin (found in mushrooms), mescaline (cactus) and DMT (found in ayahuasca, a drink brewed from a South American vine).
+

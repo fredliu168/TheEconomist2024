@@ -1,0 +1,8 @@
+###### A sequence of zeroes
+# What happened to the artificial-intelligence revolution? 
+##### So far the technology has had almost no economic impact 
+![image](images/20240706_FND001.jpg) 
+> Jul 2nd 2024 
+Move to San Francisco and it is hard not to be swept up by mania over . Advertisements tell you how the tech will revolutionise your workplace. In bars people speculate about when the world will “get AGI”, or when machines will become more advanced than humans. The five big tech firms—Alphabet, , , Meta and Microsoft, all of which have either headquarters or outposts nearby—are investing vast sums. This year they are budgeting an estimated $400bn for capital expenditures, mostly on AI-related hardware, and for research and development. 
+In the world’s tech capital it is taken as read that AI will transform the global economy. But for ai to fulfil its potential, firms everywhere need to buy the technology, shape it to their needs and become more productive as a result. Investors have added more than $2trn to the market value of the five big tech firms in the past year—in effect projecting an extra $300bn-400bn in annual revenues according to our rough estimates, about the same as another Apple’s worth of sales. For now, though, the tech titans are miles from such results. Even bullish analysts think Microsoft will make only about $10bn from generative-AI-related sales this year. Beyond America’s west coast, there is little sign AI is having much of an effect on anything. 
+
