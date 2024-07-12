@@ -1,0 +1,8 @@
+###### Retaliate, negotiate, repeat
+# Europe prepares for a mighty trade war 
+##### Will it be able to stick to its rule-abiding principles? 
+![image](images/20240713_FNP003.jpg) 
+> Jul 11th 2024 
+“We cannot carry on trade without war, nor war without trade,” wrote Jan Pieterszoon Coen, a brutal governor-general of the Dutch East India Company, to shareholders in 1614. Four centuries later, things sound a bit different. “Let’s make no mistake: assertiveness is a prerequisite for keeping our markets open,” says Sabine Weyand, the EU’s top trade negotiator. After decades during which America supported the global rules-based trade order and European commerce thrived, the bloc now has to learn how to do business in a fractious world. 
+Electric vehicles (EVs) from China are the EU’s latest target. On July 5th the European Commission started to apply provisional tariffs to them. These differ by firm, from 17% for BYD to 38% for SAIC, based on subsidies they have received from the Chinese state and their co-operation with the EU’s investigation. The commission’s logic for applying levies on top of an existing 10% tariff on car imports is that Chinese carmakers have an unfair advantage owing to favoured treatment at home—a justification that allows the levies to fall within the World Trade Organisation’s (WTO) rules. The move nevertheless illustrates the tightrope European officials must walk. They want to uphold the rules-based order, from which the continent benefits enormously, while ensuring that they are not bullied by more protectionist rivals.
+

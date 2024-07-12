@@ -1,0 +1,9 @@
+###### Haunted by a painting
+# Pål Enger never quite knew why he had to steal “The Scream” 
+##### The petty criminal and former footballer died on June 29th, aged 57 
+![image](images/20240713_OBP001.jpg) 
+> Jul 10th 2024 
+Some paintings are just too provoking. They have to be responded to. , a howl against war, with red paint; Velázquez’s shapely “Rokeby Venus” with a meat cleaver wielded by a cross suffragette; the infuriating smile of the “Mona Lisa” with almost anything (stones, cake, paint, a teacup, soup). And  with its swirling reds and blues and its anguished central figure, silently crying out, hands clamped over ears…? With plain removal. 
+Pål Enger was never sure why he stole it. But the fact was that one minute his ladder was up against the wall of the National Gallery in Oslo, just below a window he could silently break, and the next he was wedging the painting, worth $55m, behind the front seat of his car. He then drove around the city for hours, wondering what to do next. The feeling was magical, really electric: “The Scream” was his. Ever polite, he had left a thankyou note. 
+His theft, which horrified the art world and traumatised Norway, had been brewing for at least six years. He was in prison for half of that, for having stolen another Munch, “Love and Pain”, from the same museum in 1988. He had meant to nab “The Scream”, but picked the wrong window for his ladder. Out of his keen disappointment a better plan emerged. On February 12th 1994 the Winter Olympics would open in Lillehammer; the police would be distracted, and he would strike. A friend had been called in to lend a hand. It would be the perfect heist.
+

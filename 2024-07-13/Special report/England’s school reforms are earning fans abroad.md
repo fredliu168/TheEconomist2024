@@ -1,0 +1,9 @@
+###### Back to basics
+# England’s school reforms are earning fans abroad 
+##### Countries that have made more fashionable changes have seen their scores fall hard 
+![image](images/20240713_SRD005.jpg) 
+> Jul 7th 2024 
+On paper, Mercia School in the north of England is a forbidding and unfashionable place. Teachers focus unrelentingly on “the acquisition of knowledge”, if its intimidating website is any guide. Lessons are “didactic”, delivered to pupils sitting in orderly rows. Youngsters form lines in the playground before processing silently into class. Failure to bring a pen can earn a demerit. Chatting in the corridors is banned.
+Yet on a cloudy morning in May the secondary school in Sheffield is a far cheerier place than its pen portrait suggests. In its airy dinner hall 12-year-olds in PE kit prepare to tackle an orienteering course set across school grounds. During a noisy breaktime, two youngsters explain how they won the badges that hang in thick bunches from their lapels (for good attendance, speaking up in class and the like). The school is oversubscribed, absence rates are low and expulsions rare, says Dean Webster, its headteacher. Last year it ranked third in England for how much progress children make between the ages of 11 and 16. For boosting disadvantaged youngsters, it came top.
+Founded in 2018 on the site of a school closed for its poor grades, Mercia is emblematic of a shift on education that politicians in England have pursued for a decade and a half. Conservative ministers who entered government in 2010 were convinced that faddish ideologies had diverted schools from teaching in ways that evidence suggests work best. Many people believe that the reforms they wrought amount to a big step backwards. Yet lately England’s schools have been climbing up international league tables. Meanwhile countries that have pressed on with more fashionable approaches have been watching their own scores fall.
+
