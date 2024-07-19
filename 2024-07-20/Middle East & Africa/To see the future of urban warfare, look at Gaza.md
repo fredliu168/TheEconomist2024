@@ -1,0 +1,8 @@
+###### Students of destruction
+# To see the future of urban warfare, look at Gaza 
+##### Western armies are studying the horrifying conflict for tactical lessons 
+![image](images/20240720_MAP503.jpg) 
+> Jul 18th 2024 
+FOR ARMIES lucky enough to be at peace, other people’s wars are learning opportunities. Take Israel’s northern front, where the Israel Defence Forces (IDF) have been exchanging rockets and drones with Hizbullah, the Lebanese militant group. To stop Hizbullah’s increasingly capable drones, the IDF has resorted to heavy jamming. The impact on the electromagnetic spectrum is so strong that Israeli soldiers have had to eschew digital maps for printed ones. That is one of many tactical lessons identified in a new report by the Royal United Services Institute (RUSI), a think-tank in London, based on extensive interviews with IDF officers. (“Hamas commanders were not accessible for interview,” the authors observe, laconically.) 
+Many Western armies believe future wars will involve intense urban combat, whether they are NATO defending Baltic cities from Russia or America parrying a Chinese invasion of Taipei, Taiwan’s capital. The battle for Gaza city, which began in November, is a cautionary tale. Israel’s heavy firepower reduced much of it to rubble. Tank drivers struggled to judge the depth of craters through night-vision goggles, causing vehicles to roll over. Troops calling in artillery or air strikes found it harder to describe precise locations, because distinguishing features had been blasted away, and to .
+
