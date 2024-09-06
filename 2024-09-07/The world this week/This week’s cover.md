@@ -1,0 +1,6 @@
+###### The Economist
+# This week’s cover 
+##### How we saw the world 
+> Sep 5th 2024 
+This week we published two covers. In America we consider what to do about the country’s dangerous roads. Each year cars kill roughly 40,000 people there—and not just because it is a big place where people love to drive. The country’s roads are nearly twice as dangerous per mile driven as those in the rest of the rich world. Deaths there involving cars have increased over the past decade, despite the introduction of technology meant to make driving safer. Weight is to blame. Our analysis of 7.5m crashes showed that for every 10,000 crashes the heaviest vehicles kill 37 people in the other car, compared with just 2.6 for the lightest. And the situation is getting worse. In 2023, 31% of new cars in America weighed over 5,000lb (2.27 tonnes), compared with 22% in 2018. This poses a giant collective-action problem. Individually, it is rational for people to buy bigger cars. Yet the sum of those decisions is much more lethal roads.
+
