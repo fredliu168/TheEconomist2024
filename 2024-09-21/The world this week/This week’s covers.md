@@ -1,0 +1,6 @@
+###### The Economist
+# This week’s covers 
+##### How we saw the world 
+> Sep 19th 2024 
+THIS WEEK WE had two covers. In the EU, the Middle East and Africa we looked at how the world’s poor stopped catching up. During the two decades after around 1995 gaps in GDP narrowed, extreme poverty plummeted and global public health and education improved vastly. With a big fall in malaria deaths and infant mortality and a rise in school enrolment. But extreme poverty has barely fallen since 2015. Measures of global public health improved only slowly in the late 2010s, and then went into decline after the pandemic. Malaria has killed more than 600,000 people a year in the 2020s, reverting to the level of 2012. What went wrong? The biggest problem is that home-grown reform has ground to a halt. With some notable exceptions, such as President Javier Milei’s efforts in Argentina, the world’s leaders are more interested in state control, industrial policy and protectionism than in the 1990s. For the more than 700m people who are still in extreme poverty—and the 3bn who are merely poor—this is grim news.
+
