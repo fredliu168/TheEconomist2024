@@ -1,0 +1,7 @@
+###### The Economist reads
+# An introduction to Lebanon, perhaps the next front in a wider war 
+##### Four books and a film on a pivotal Middle Eastern country 
+![image](images/20240928_BLP503.jpg) 
+> Sep 24th 2024 
+LEBANESE BOAST that theirs is a country where you can ski in the mountains and swim in the ocean on the same day. Beirut, Lebanon’s capital, was once so urbane that it was known as the Paris of the Middle East. Lebanese have in common an irreverent sense of humour. They love their country for these and other reasons but they have often not loved each other. Lebanon’s various religious sects, 18 of which are officially recognised, have long fought one another. Outside powers, including Israel, Syria, Iran and America, have exacerbated their conflicts. Lebanon’s sect-based  has led to corruption and political paralysis. Governments based on it have mismanaged the economy. GDP is less than half what it was in 2019. In 2023 the central bank  by 90% against the dollar. Inflation exceeded 200% that year. Many Lebanese have left in recent years, joining an already-vast diaspora. About 5.5m people, including hundreds of thousands of Syrian and Palestinian refugees, remain in a country that is being dragged once again into the seemingly endless war between Israel and its neighbours. That would escalate a regional crisis that Western powers are desperate to contain. We recommend four books and a film on a fascinating and pivotal country.
+
